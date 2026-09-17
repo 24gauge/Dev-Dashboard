@@ -1,2 +1,2 @@
 # Dev-Dashboard
-just a little project for fun
+NEVER releasing bro, this is so unfinished 😭
